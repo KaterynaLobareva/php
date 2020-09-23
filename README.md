@@ -33,3 +33,5 @@ We offer:
 - 28 days\year are paid vacation days;
 - fast selection process;
 - tax compensation.
+
+Contacts Telegram:@Lobareva_kateryna
